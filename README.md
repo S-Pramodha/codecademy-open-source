@@ -1,2 +1,2 @@
 # codecademy-open-source
-This is simple open source repository yooo yooo!!!!
+Hi!!! I'm Sanchali Pramodha from General sir John Kotelawala Defence University.
